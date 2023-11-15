@@ -1,2 +1,2 @@
 # sui1
-my looovely fam
+my loovely fam
